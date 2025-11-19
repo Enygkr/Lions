@@ -1,2 +1,0 @@
-# Lions
-Minhas atividades
